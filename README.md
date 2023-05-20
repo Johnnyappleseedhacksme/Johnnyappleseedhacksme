@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Johnnyappleseedhacksme
 - 👀 I’m interested in ...bounty sharing testing 
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...testing because ive been hacked  johnnyappleseed uses ny profile trohrer83 to  do an acccount take iver  
+- 💞️ I’m looking to collaborate on ...testing because ive been hacked  johnnyappleseed uses ny profile trohrer83 to  do an acccount take over and i have lots of testing incan do, '/y as well profit after he ruined my life  
 - 📫 How to reach me ...trishamarie1792@proton.me
 
 <!---
